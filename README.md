@@ -1,0 +1,1 @@
+# ringkasanbab1-7
